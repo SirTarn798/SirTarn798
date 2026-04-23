@@ -1,4 +1,2 @@
 - 👋 Hi, I’m @SirTarn798
-- 👀 I’m interested in Web development, LOL Esport, and video games :3
-- 🌱 I’m currently learning .NET and more web technologies
 - 📫 How to reach me : Email -> jaoaurai@gmail.com | IG : ta._arn99
